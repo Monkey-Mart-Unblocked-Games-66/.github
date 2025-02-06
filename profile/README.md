@@ -2,7 +2,7 @@
 
 Welcome to **Monkey Mart Unblocked Games 66**, the ultimate online destination where adventure meets limitless fun! Whether you’re a student seeking distraction from a long study day or a gaming enthusiast hunting for new challenges, our platform is your go-to source for a truly **epic adventure** in unblocked gaming.
 
-## <a href="https://classroom6xcool.com/monkey-mart.html">👉 Play Monkey Mart Unblocked Games 66 👈</a>
+## <a href="https://classroom-6x-unblocked.github.io/">👉 Play Monkey Mart Unblocked Games 66 👈</a>
 
 ![Monkey Mart Unblocked Games 66](https://github.com/user-attachments/assets/938e3b55-3c15-4493-8a28-e0225c3976fa)
 
